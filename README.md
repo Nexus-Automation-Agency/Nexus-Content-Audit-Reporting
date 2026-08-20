@@ -574,7 +574,7 @@ For commercial solutions, custom automation development, enterprise implementati
 
 **Nexus Automation Agency**
 
-Email: **sajidaabidofficial@gmail.com**
+Email: **NexusAutomationAgency1@gmail.com**
 
 ---
 
